@@ -1,1 +1,0 @@
-# Facebook-cookies-bot
